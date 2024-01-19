@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mkantorrr
+- 👀 I’m interested in Samratia
+- 🌱 I’m currently learning Sarmatian culture
+- 💞️ I’m looking to collaborate on the Sarmatian ethos
+- 📫 How to reach me - Sarmatian intuition
+- 😄 Pronouns: Sarmata/Sarmatian
+- ⚡ Fun fact: Pure blood sarmatian
