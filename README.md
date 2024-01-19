@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mkantorrr
-- 👀 I’m interested in Sarmatia
-- 🌱 I’m currently learning Sarmatian culture
+- 👀 I’m interested in the Sarmatian spirit.
+- 🌱 I’m currently learning about Sarmatia
 - 💞️ I’m looking to collaborate on fulfilling the Sarmatian ethos
 - 📫 How to reach me - Sarmatian intuition
 - 😄 Pronouns: Sarmata/Sarmatian
